@@ -18,7 +18,7 @@ I have hands-on experience with:
 
 ## 🌐 Find Me Online
 
-* LinkedIn: www.linkedin.com/in/pankti-shah-5252a2258/
+* LinkedIn:www.linkedin.com/in/panktishah02/
 
 
 ## 📚 Education
